@@ -1,0 +1,1 @@
+This is the publication of this semester-long course for public use.  This publication acknowledges Colorado DOT and CDOT's OIM ZEV Manufacturing and Engineering Workforce Development Program<img width="4159" height="231" alt="image" src="https://github.com/user-attachments/assets/424a0a3a-4a39-4b90-b390-3b88423765f3" />
